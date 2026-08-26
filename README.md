@@ -1,0 +1,1 @@
+# -KLH-CSE-2026-27-2420090037-Agriculture-AI-For-Smart-Farming
